@@ -9,4 +9,4 @@ Welcome to my space, where code meets creativity. I’m all about pushing the li
 
 🤝 Collaboration Goals: I’m here to partner with forward-thinking creators, startups, and open-source communities. If you're working on something groundbreaking, count me in!
 
-📬 Let’s Talk: Shoot me a message at zahoweb@gmail.com
+📬 Let’s Talk: Shoot me a message on Discord (@tarekifla), Gmail (zahoweb@gmail.com).
